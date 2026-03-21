@@ -4,6 +4,7 @@ date: 2026-03-21
 ---
 
 ![Louis Theroux, Inside the Manopsphere](images/theroux_manosphere.avif)
+
 Samen met mijn vrouw bekeek ik deze avond de nieuwste Netflix-docu van Louis Theroux rond de zgn. **'Manosphere'**, een wereld waarin online mannengemeenschappen zich verzamelen rond een mix van *zelfverbetering, relationele frustraties en uitgesproken ideeën over genderrollen*, vaak versterkt door algoritmes en een ecosysteem van influencers die elkaar inhoudelijk en economisch in stand houden. Theroux staat erom bekend geen onderwerpen uit de weg te gaan.
 
 Na het bekijken van een trailer vertelde ik mezelf - of was het eerder wijsmaken? - dat ik met open hart naar de mannen zou kijken. Ik herken mijn goede intenties onder andere in de podcasts van **Dominique Willaert** die in Vlaanderen rondtrok om het succes van (extreem-)rechts te gaan begrijpen, zonder het te veroordelen. Met andere woorden: om de gedachtegang achter elke ideologie te proberen snappen vanuit de context waarin ze ontstaan zijn.
