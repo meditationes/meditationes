@@ -4,5 +4,6 @@ plugins:
 gem "github-pages", group: :jekyll_plugins
 
 title: Meditationes
-description: Gedachten in een drukke wereld
+description: Overwegingen in stilte en eenvoud
 theme: jekyll-theme-minimal
+baseurl: "/meditationes"
