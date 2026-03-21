@@ -3,6 +3,7 @@ layout: post
 title: "This is a man's world."
 date: 2026-03-21
 author: Francis
+tags: socials, gender, mensenrechten
 ---
 
 ![Theroux Inside the Manosphere](_posts/images/manosphere.jpg) 
