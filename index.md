@@ -1,11 +1,11 @@
 # Meditationes
 
-Welkom op mijn blog.
-
-Hier verzamel ik gedachten, vragen en inzichten over het leven.
+Gedachten, traag neergeschreven.
 
 ---
 
-## Eerste gedachte
+## Laatste meditaties
 
-Alles begint met aandacht.
+{% for post in site.posts %}
+- [{{ post.title }}]({{ post.url }})
+{% endfor %}
