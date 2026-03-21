@@ -8,16 +8,4 @@ Welkom bij mijn eigen versie van "Meditationes", waar ik op een vergelijkbare ma
 
 Francis
 
----
-layout: default
-title: Blog
----
 
-<ul>
-  {% for post in site.posts %}
-    <li>
-      <a href="{{ post.url }}">{{ post.title }}</a>
-      - {{ post.date | date: "%d %B %Y" }}
-    </li>
-  {% endfor %}
-</ul>
