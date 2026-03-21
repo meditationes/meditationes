@@ -2,9 +2,10 @@
 layout: post 
 title: "This is a man's world."
 date: 2026-03-21
+author: Francis
 ---
 
-![Theroux Inside the Manosphere](images/manosphere.jpg) 
+![Theroux Inside the Manosphere](_posts/images/manosphere.jpg) 
 
 Samen met mijn vrouw bekeek ik deze avond de nieuwste Netflix-docu van Louis Theroux rond de zgn. **'Manosphere'**, een wereld waarin online mannengemeenschappen zich verzamelen rond een mix van *zelfverbetering, relationele frustraties en uitgesproken ideeën over genderrollen*, vaak versterkt door algoritmes en een ecosysteem van influencers die elkaar inhoudelijk en economisch in stand houden. Theroux staat erom bekend geen onderwerpen uit de weg te gaan.
 
