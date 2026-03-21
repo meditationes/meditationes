@@ -8,8 +8,16 @@ Welkom bij mijn eigen versie van "Meditationes", waar ik op een vergelijkbare ma
 
 Francis
 
-## Laatste meditaties
+---
+layout: default
+title: Blog
+---
 
-{% for post in site.posts %}
-- [{{ post.title }}]({{ post.url }})
-{% endfor %}
+<ul>
+  {% for post in site.posts %}
+    <li>
+      <a href="{{ post.url }}">{{ post.title }}</a>
+      - {{ post.date | date: "%d %B %Y" }}
+    </li>
+  {% endfor %}
+</ul>
