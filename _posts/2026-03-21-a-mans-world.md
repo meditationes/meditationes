@@ -6,7 +6,7 @@ author: Francis
 tags: socials, gender, mensenrechten
 ---
 
-![Theroux](images/theroux_manosphere.avif)
+![Louis Theroux Inside the Manosphere](images/theroux.jpg)
 
 
 Samen met mijn vrouw bekeek ik deze avond de nieuwste Netflix-docu van Louis Theroux rond de zgn. **'Manosphere'**, een wereld waarin online mannengemeenschappen zich verzamelen rond een mix van *zelfverbetering, relationele frustraties en uitgesproken ideeën over genderrollen*, vaak versterkt door algoritmes en een ecosysteem van influencers die elkaar inhoudelijk en economisch in stand houden. Theroux staat erom bekend geen onderwerpen uit de weg te gaan.
