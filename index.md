@@ -7,7 +7,7 @@ Hier sluit mijn eigen versie van Meditationes bij aan: een poging om mijn gedach
 
 Francis
 
-## Blogposts
+## Gedachtengang
 <ul>
   {% for post in site.posts %}
     <li>
