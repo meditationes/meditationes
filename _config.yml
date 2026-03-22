@@ -4,7 +4,7 @@ plugins:
 gem "github-pages", group: :jekyll_plugins
 
 title: Meditationes
-description: Overwegingen in stilte en eenvoud
+description: Overpeinzen in de 21e eeuw
 theme: jekyll-theme-minimal
 baseurl: "/meditationes"
 
