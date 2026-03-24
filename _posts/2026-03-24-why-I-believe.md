@@ -22,7 +22,7 @@ Het verhaal van de dag – dat van **de overspelige vrouw** – was net wat ik n
 
 Jezus wordt in **een morele val** gelokt. Of hij beschermt de vrouw en hij verloochent de wetten waar het jodendom voor staat, of hij beschermt de wetten van Mozes en hij verloochent zijn eigen visie op de naaste en de medemens door toe te staan dat ze gestenigd wordt. Wat volgt, is misschien wel een van de krachtigste momenten uit het evangelie: hij bukt zich en schrijft in het zand. Geen grote woorden, geen onmiddellijke veroordeling, geen snelle oplossing. Alleen stilte. Tijd. Ruimte. Van der Vorst kiest voor de versie van rembrandt uit 1644 die in The National Gallery van 'zijn' Londen hangt. 
 
-!Jezus en de overspelige vrouw](/meditationes/images/Rembrandt_overspelige_vrouw.jpg)
+![Jezus en de overspelige vrouw](/meditationes/images/Rembrandt_overspelige_vrouw.jpg)
 
 En dan die ene zin die blijft nazinderen: “Wie zonder zonde is, werpe de eerste steen.”
 
