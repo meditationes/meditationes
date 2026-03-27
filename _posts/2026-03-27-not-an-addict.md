@@ -1,3 +1,11 @@
+---
+layout: post
+title: "I'm not an addict."
+date: 2026-03-27
+author: Francis
+tags: socials, verslaving, Kahneman
+---
+
 I’m not an addict
 
 Het abrupte afscheid van mijn sociale media heeft meer teweeg gebracht binnenin mezelf dan ik had kunnen vermoeden. Begrijp me niet verkeerd: geen spijt! Wanneer je elke dag gedurende enkele uren je smartphone gebruikt als extensie van je arm en gedurende al die uren eigenlijk weinig anders doet dan doomscrolling, dan weet je dat er betere keuzes zijn in het leven qua daginvulling.
