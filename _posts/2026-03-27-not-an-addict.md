@@ -12,6 +12,8 @@ Het abrupte afscheid van mijn sociale media heeft meer teweeg gebracht binnenin 
 
 Uit ervaring weet ik dat mijn verslavingsgevoelige aard het lastig heeft met ‘een beetje minder’. Stoppen met iets werkt meestal beter, maar die radicaliteit heeft een donkere schaduwzijde: als het ‘stoppen’ niet slaagt, keer ik nooit terug naar ‘een beetje’, maar sla ik aan de andere kant van het spectrum door. Mijn grootste successen waren de definitieve keuzes. Ik ben op mijn 18e gestopt met alcohol drinken en op mijn 23e met roken. Ik keek nooit meer terug.
 
+cross-addictioh.jpg
+
 Nu vertelde mijn (voedings)psychologe mij iets boeiends. Ze zei dat verslavingen de gewoonte hebben zich te verplaatsen, een fenomeen dat bekend staat als cross-addiction.  Ze stelde mij de vraag wat – naar mijn eigen aanvoelen – mijn volgende verslaving zal zijn. Ik kon er eerlijk gezegd niet meteen op antwoorden. Hoe definieer je ‘verslaving’? En zijn verslavingen altijd per se negatief?
 
 Ik doe een poging: ligt het antwoord niet ergens in het onderscheid tussen destructieve afhankelijkheid en constructieve toewijding? Want wanneer wordt discipline een dwang? Wanneer wordt passie een vlucht? We prijzen mensen die elke dag sporten, die hun werk met een bijna monomane focus uitvoeren, die “gedreven” zijn. Maar op welk punt kantelt die bewondering in bezorgdheid? Is de marathonloper die niet kan stoppen met lopen fundamenteel anders dan de roker die niet kan stoppen met roken, of vertellen we onszelf gewoon een ander verhaal omdat het ene maatschappelijk beloond wordt en het andere niet?
