@@ -12,7 +12,8 @@ Het abrupte afscheid van mijn sociale media heeft meer teweeg gebracht binnenin 
 
 Uit ervaring weet ik dat mijn verslavingsgevoelige aard het lastig heeft met ‘een beetje minder’. Stoppen met iets werkt meestal beter, maar die radicaliteit heeft een donkere schaduwzijde: als het ‘stoppen’ niet slaagt, keer ik nooit terug naar ‘een beetje’, maar sla ik aan de andere kant van het spectrum door. Mijn grootste successen waren de definitieve keuzes. Ik ben op mijn 18e gestopt met alcohol drinken en op mijn 23e met roken. Ik keek nooit meer terug.
 
-cross-addictioh.jpg
+![Cross-addiction](/meditationes/images/cross-addictioh.jpg)
+
 
 Nu vertelde mijn (voedings)psychologe mij iets boeiends. Ze zei dat verslavingen de gewoonte hebben zich te verplaatsen, een fenomeen dat bekend staat als cross-addiction.  Ze stelde mij de vraag wat – naar mijn eigen aanvoelen – mijn volgende verslaving zal zijn. Ik kon er eerlijk gezegd niet meteen op antwoorden. Hoe definieer je ‘verslaving’? En zijn verslavingen altijd per se negatief?
 
@@ -21,6 +22,8 @@ Ik doe een poging: ligt het antwoord niet ergens in het onderscheid tussen destr
 Misschien gaat verslaving minder over het object en meer over de relatie die je ermee aangaat. Niet zozeer wat je doet, maar waarom je het doet en wat er gebeurt als je het niet meer kan doen. Ontstaat er dan ruimte of ontstaat er paniek? Stilte of onrust? Vrijheid of leegte?
 
 Het woord obsessie betekent etymologisch vanuit het Latijn ‘ob-sidere’, dat iets zich nestelt in jouw geest en daar alle ruimte inneemt en bezet houdt. Ongeveer één week lang vertoonde ik ontwenningsverschijnselen van de cold turkey detox van mijn sociale media. Dat is confronterend voor een 42-jarige die al jaren jongeren waarschuwt voor excessieve schermtijd en de gevaren van sociale media. Het voelt alsof ik – om het nog eens Bijbels te houden – de spreekwoordelijke splinter in de ogen van de leerlingen benoem terwijl ik de balk in mijn eigen oog niet zag. Vaak denken we dat het bij onszelf wel meevalt, dat we controle hebben over onze emoties. Dat blijft een illusie.
+
+![Daniel Kahneman](/meditationes/images/kahneman.png)
 
 Wie veel geschreven heeft over die schijnbare controle is Daniel Kahneman. In zijn werk beschrijft hij hoe wij als mensen hardnekkig geloven dat we rationele wezens zijn die bewuste keuzes maken, terwijl een groot deel van ons gedrag gestuurd wordt door automatische processen, gewoontes en onbewuste drijfveren. We denken dat wij onze gedachten denken, maar vaak denken onze gedachten ons. Het gevoel van controle is comfortabel, maar zelden accuraat. En misschien is dat precies waarom het zo moeilijk is om eerlijk te kijken naar onze eigen patronen: omdat het erkennen van die illusie iets fundamenteels in ons zelfbeeld aantast.
 
