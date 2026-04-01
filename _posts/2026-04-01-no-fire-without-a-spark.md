@@ -20,11 +20,13 @@ Tegelijk hoor je een steeds luidere stem die beweert dat de antwoorden net wél 
 
 Ik blijf openstaan voor gesprek, dialoog, ontmoeting. Maar ik merk dat ik steeds vaker op mijn tanden moet bijten. Omdat het een slappe koord is. **Omdat nuance zelden beloond wordt**. Eerlijk?! De drang groeit om het zelf ook wat scherper te stellen. Om te benoemen wat wringt. Om luidop te zeggen dat extremistische en proselitische stemmen binnen elke religie plaats moeten maken. Plaats voor die enorme, vaak zwijgende meerderheid van gelovigen die wél willen samenleven. Die geen bekeringsdrang voelen. Die mensenrechten niet als bedreiging zien, maar als fundament. Die niet bang zijn voor de ander, ook niet voor wie niet gelooft.
 
+![Fugelsang Book Cover](/meditationes/images/fugelsang-cover.jpg)
+
 Hoe groot is mijn geluk dat ik net op dat moment botste op **Separation of Church and Hate** van **John Fugelsang**. Wat een boek. Wat een opluchting. Fugelsang is geen theoloog, maar een comedian en politiek commentator uit de Verenigde Staten, opgegroeid tussen een ex-priester en een ex-non. Dat voel je. Hij schrijft scherp, bij momenten cynisch, maar altijd met een duidelijke liefde voor de figuur van Jezus zelf. Niet per se voor de institutie errond, wel voor de kern.
 
 Al op de eerste pagina’s zet hij de toon: hij kijkt naar Jezus zoals naar Elvis. Hij houdt van de man, maar de fans maken hem zenuwachtig. Het is een zin die blijft hangen, omdat ze tegelijk grappig en pijnlijk juist is. Meteen daarop claimt hij was Jezus voor hem is… en wat hij vooral niet was.
 
-
+![Fugelsang Book Quote](/meditationes/images/Fugelsang-quote.jpeg)
 
 Hoewel het boek sterk geworteld is in de Amerikaanse context - waar religie en politiek vaak gevaarlijk verstrengeld zijn - is de hercontextalusering naar Europa probleemloos te maken. Ook hier zien we hoe religie wordt ingezet om uit te sluiten in plaats van te verbinden. Hoe geloof wordt **gekaapt door ideologie**.
 
