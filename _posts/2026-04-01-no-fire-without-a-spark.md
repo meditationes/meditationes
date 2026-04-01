@@ -48,7 +48,10 @@ Ik voel opnieuw de goesting om het gesprek aan te gaan. Niet agressief of morali
 
 Niet omdat dat comfortabel is en zeker niet omdat het applaus zal opleveren. Maar omdat het dichter ligt bij wat de kern zou moeten zijn. Een geloof dat zich niet meet aan regels of identiteit, maar aan hoe het omgaat met de meest kwetsbaren. Dat is geen randgedachte. Dat is de essentie.
 
+
+
 *postscriptum*
+
 Net toen ik deze tekst wilde publiceren, kreeg ik via een collega Engels een brief binnen die één van mijn leerlingen aan mij gericht heeft. Het gaat om een christelijk meisje uit 4 arbeidsfinaliteit (bso) die al een tijdje worstelt met haar geloof door een eerder strenge geloofsopvoeding. 
 
 Enkele snippets uit haar brief: "you inspire me to stay positive and kind because if you can do it, so can I".  -   "I feel like i actually end up learning something in religion and I started looking at my own religion from a different perspective."    -   "I started looking at my religion in a different way and started asking questions I never thought about before."   (en mijn favoriet) "You learn us that religion isn't just something we learn in school, but something that can guide how we live our lives. You helped me see my religion in a more positive and interesting way and I really didn't exspect that.'
