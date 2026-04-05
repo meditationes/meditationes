@@ -3,7 +3,7 @@ layout: post
 title: "Make Easter Great Again"
 date: 2026-04-05
 author: Francis
-tags: religie, Pasen, samenleving
+tags: religie, Pasen, maatschappij
 ---
 
 Vandaag is het Pasen. Ik denk dat ik aan mijn collega’s in de drukkerij ga vragen of ze geen petten willen maken met daarop **‘Make Easter great again’**. En daarmee bedoel ik het volgende: de tijd, middelen en energie die in MAGA en in vergelijkbare ideologieën overal ter wereld gestoken worden, zijn omgekeerd evenredig met de boodschap van Pasen.
