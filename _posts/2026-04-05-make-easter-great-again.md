@@ -8,6 +8,8 @@ tags: religie, Pasen, samenleving
 
 Vandaag is het Pasen. Ik denk dat ik aan mijn collega’s in de drukkerij ga vragen of ze geen petten willen maken met daarop **‘Make Easter great again’**. En daarmee bedoel ik het volgende: de tijd, middelen en energie die in MAGA en in vergelijkbare ideologieën overal ter wereld gestoken worden, zijn omgekeerd evenredig met de boodschap van Pasen.
 
+![Make Easter Great Again](/meditationes/images/mega.jpeg)
+
 Of je nu de verrijzenis als letterlijk gegeven of als metafoor beschouwt, de boodschap van Pasen zou ondertussen duidelijk moeten zijn. Geen verhaal van agressie en wantrouwen maar van de hoop dat miserie en ellende nooit het einde kan zijn.
 En toch leven we in een tijd waarin precies dat tegenovergestelde luidkeels wordt verkocht. Angst als politiek programma. Wantrouwen als identiteit. Het idee dat de ander per definitie een bedreiging is. Dat je je moet terugplooien op jezelf, je groep, je natie. Alsof de wereld een taart is waarvan jouw stuk kleiner wordt zodra iemand anders ook een vork vastneemt.
 Daar zit de aantrekkingskracht van slogans als MAGA en – dichter bij huis – ‘Vlaanderen Weer Van Ons’: ze beloven herstel door uitsluiting. Ze suggereren dat het verleden beter was omdat het homogener, eenvoudiger en “veiliger” leek. Maar dat soort nostalgie is selectief geheugenverlies. Het vergeet wie er toen niet meetelde. Het vergeet wie er toen geen stem had. Het vergeet hoeveel mensen toen al aan de verkeerde kant van de geschiedenis stonden.
