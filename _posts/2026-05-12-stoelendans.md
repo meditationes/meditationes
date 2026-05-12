@@ -5,7 +5,6 @@ date: 2026-05-12
 author: Francis
 tags: bildung, groei, Van Gogh
 ---
-#Stoelendans#
 
 Ik heb een tijdje niet meer geschreven, deels omdat ik weinig te vertellen had en anderzijds omdat ik de focus van mijn hernieuwde levensstijl naar de praktijk wilde brengen. Schrijven is boeiend, maar **de afstand tot de schrijftafel** bood me een welkome tijd van bewegen, van reizen en van nadenken zonder neerslag.
 
