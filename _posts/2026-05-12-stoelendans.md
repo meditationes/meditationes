@@ -9,6 +9,8 @@ tags: bildung, groei, Van Gogh
 
 Ik heb een tijdje niet meer geschreven, deels omdat ik weinig te vertellen had en anderzijds omdat ik de focus van mijn hernieuwde levensstijl naar de praktijk wilde brengen. Schrijven is boeiend, maar **de afstand tot de schrijftafel** bood me een welkome tijd van bewegen, van reizen en van nadenken zonder neerslag.
 
+![Tuinset](/meditationes/images/tuinset_stoelendans.jpeg)
+
 Ondertussen is het huis van onze overleden oom verkocht en heeft onze tante intrek genomen in een verzorgingshuis. Uit de ‘erfenis’ kregen we een kwalitatieve houten tuinset: een achthoekige tafel met bijhorende stoelen. Mijn vrouw en ik hebben even getwijfeld of we ze wel zouden adopteren, gezien de staat waarin ze zich bevonden en gezien het feit dat we al een moderne tuinset hadden.
 
 Wat ons overstag heeft doen gaan, is het feit dat we beiden hetzelfde aanvoelden. Dat we door de huidige staat van het hout durfden kijken en het **potentieel** van de set — gemaakt uit hoogwaardig kwaliteitsvol hout — voor ogen konden houden. Achteraf gezien is het ook een keuze gebleken voor levend materiaal dat ademt en verweert en dat onderhoud vraagt, net zoals wij dat doen, lichaam en ziel. Dat de tekenen van de tijd niet vanzelfsprekend doorstaat zoals de aluminium tuinset die al jaren in ons tuintje staat, maar dat gevoed en verrijkt moet worden om overeind te blijven in het leven.
@@ -28,6 +30,8 @@ Dat is ook waarom zoveel mensen blijven rondlopen met ballast die allang had moe
 En nu, na vele dagen schuren, bereiken we de finale fase. De duizenden stofdeeltjes en schilfers op de grond en op mijn kleren vormen het verhaal van haar verleden. Ik zal ze wegwassen omdat ze geen deel uitmaken van haar toekomst. Ik zal beits en olie toevoegen om haar alle kansen te geven opnieuw tot haar recht te komen, haar **bestaansrecht** te herbevestigen.
 
 Tijdens het schuren dacht ik meermaals aan de woorden die ik nu nog aan het schrijven ben. Hoe de fysieke arbeid deugd doet en hoe ik simultaan met een ander soort schuurmachine ook mijn eigen ziel en veelgelaagdheid aan het aanpakken ben. Hoe ik mezelf herbevestig in wie ik ben en wie ik wil zijn en hoe ik vaststel dat ik daarvoor ook dieper heb moeten schuren dan ik zelf voor ogen had. Maar vooral en bovenal: dat ik **dankbaar** ben dat ik de juiste keuzes heb gemaakt, van de juiste mensen afscheid heb genomen en mezelf opnieuw kan voeden met nieuwe lagen die mijn leven de komende jaren vorm zullen geven. Dat ik geleerd heb uit mijn fouten, mezelf heb **vergeven** en door ben gegaan. En dat ik met de nodige trots naar mijn eigen nervenstructuur zal kunnen kijken.
+
+![Tuinset](/meditationes/images/stoelen_vangogh.jpeg)
 
 Ik ben heus niet de eerste die het verhaal van een stoel linkt aan de levenslijn van een mens. In de inleiding van de Taschen-reeks rond **Vincent van Gogh** (Alle schilderijen, Bibliotheca Universalis, Walther/Metzger, 2019) beschrijven de auteurs hoe Van Gogh twee stoelen schilderde. Het zijn minder bekende werken van Van Gogh maar ze zijn waarde(n)voller dan ooit.
 
@@ -55,4 +59,4 @@ De **tand des tijds** zullen we niet overleven, maar de **‘kwali-tijd’** is 
 
 Dat is uiteindelijk waar deze stoelendans echt over gaat: niet over stoelen, hout of restauratie, maar over durven herschikken **wie of wat nog een plaats krijgt aan je tafel**. Over beseffen dat niet iedereen die ooit is aangeschoven ook moet blijven zitten. Sommige stoelen raken leeg omdat mensen verdwijnen. Andere omdat je eindelijk beslist hebt ze niet langer bezet te houden door wat je klein houdt, uitput of belemmert.
 
-Misschien hoort ouder worden niet alleen bij het verzamelen van herinneringen, maar ook bij het bewust kiezen welke plaatsen nog vrij zijn rondom jou. Wie er mag aanschuiven. Wie afstand neemt. En welke stoel je eindelijk opnieuw zelf inneemt.
+Misschien hoort ouder worden niet alleen bij het verzamelen van herinneringen, maar ook bij het **bewust kiezen** welke plaatsen nog vrij zijn rondom jou. Wie er mag aanschuiven. Wie afstand neemt. En welke stoel je eindelijk opnieuw zelf inneemt.
