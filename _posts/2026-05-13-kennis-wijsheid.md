@@ -20,7 +20,7 @@ Toch wil ik nog even terugkomen op het eerste luik van de complimenten. ‘Intel
 
 Intelligentie heeft weinig te maken met **kennis en feiten** alleen. Je kan je hele leven studeren op een breed thema en nog steeds slechts een fractie van dat onderwerp beheersen. Niets maakt je intelligent als je niet de nodige transfers kan leggen over domeinen heen, tussen allerhande registers en in steeds nieuwe contexten. **Gerard Reve** zei het treffend: “Iemand kan een boek kennis hebben vergaard, en daarbij een stom rund zijn gebleven. Kennis is geen garantie voor wijsheid en inzicht, al moet men de zaak natuurlijk niet op zijn kop zetten door te verkondigen dat ongeschooldheid en ongeletterdheid deugden zouden zijn.”
 
-![Wijsheid Paul Verhaeghe](/meditationes/images/wijsheid.jpg)
+![Wijsheid](/meditationes/images/wijsheid.jpg)
 
 De complimenten van mijn collega’s vallen – bestaat er zoiets als toeval? – samen met het lezen van het essay **Wijsheid** van emeritus hoogleraar klinische psychologie **Paul Verhaeghe**. Een bijzonder aangename lectuur van een man die mij, ondanks grote verschillen in levensvisie, steeds opnieuw weet te charmeren.
 
@@ -36,7 +36,7 @@ In de zoektocht naar **het goede, het ware en het schone** zal ik wellicht meerd
 
 Over één ding zijn Verhaeghe en ik het in elk geval eens: we blijven stekeblind wanneer we terugblikken op alle ellende uit het verleden – het communisme, het nazisme en andere ontsporingen – zonder te erkennen dat wij vandaag opnieuw in een gelijkaardige logica dreigen terecht te komen. En dan wijs ik niet gemakshalve naar epigonen zoals Donald Trump, maar naar het grotere plaatje.
 
-![De Dwaas](/meditationes/images/afbeelding.jpeg)
+![Dwaas](/meditationes/images/afbeelding.jpeg)
 
 Om dat duidelijk te maken citeer ik Verhaeghe: “Tegenwoordig ligt de macht bij **de kapitalistische ideologie** en **een doorgeslagen vrijemarkteconomie** die met hun greep op media, politiek en onderwijs al meer dan een halve eeuw wetenschap verdacht maken zodra die tegen haar belangen ingaat. Alles moet wijken voor de absolute Waarheid: **(economische) Groei**. We zijn vergeten dat er rijping moet volgen en geen oncologische woekering van zieke cellen. (...) De vraag wat het goede leven zou kunnen inhouden, is verdwenen onder een pletwals van technologische antwoorden. Dit zorgde voor een wijdverspreide **illusie**: op grond van succesvolle toepassingen gelooft een meerderheid van mensen dat wetenschap voor alles een oplossing kan bieden. We verwarren al een tijd kennis met wijsheid (...) met verregaande gevolgen in het Antropoceen voor het gebruik van grond en water, de biodiversiteit en zelfs de samenstelling van de atmosfeer.”
 
