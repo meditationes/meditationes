@@ -1,4 +1,10 @@
-RIP Lieke Marsman
+---
+layout: post
+title: "RIP Lieke Marsman"
+date: 2026-06-06
+author: Francis
+tags: bildung, groei, Lieke Marsman, kanker, eulogie
+---
 
 Mijn vorige post ‘Beste Wetenschapper’ is nog niet goed en wel koud wanneer ik op de website van uitgeverij Pluim lees dat Lieke Marsman is overleden.
 
@@ -16,23 +22,23 @@ In het geval van Lieke Marsman was ik vooral aangedaan door de schoonheid waarme
 
 Ze opent haar derde dichtbundel In mijn mand met deze woorden:
 
-Oneindigheid van tijd houdt me overeind nu.
-Hoe lang de dag ook leek, het was een snipper.
-Hoe kort de dag ook lijkt, er is nog tijd.
+     *Oneindigheid van tijd houdt me overeind nu.*
+     *Hoe lang de dag ook leek, het was een snipper.*
+     *Hoe kort de dag ook lijkt, er is nog tijd.*
 
 Die woorden verwarmen mijn ziel, maar omklemmen tegelijk mijn hart.
 
 Want vandaag lees ik ze anders.
 
-Toen ik ze voor het eerst las, klonken ze als een vorm van hoop. Als een weigering om zich door de eindigheid van het leven te laten reduceren. Als een geloof dat er, ondanks alles, nog ruimte bestaat voor betekenis, voor schoonheid, voor liefde, voor taal.
+Toen ik ze voor het eerst las, klonken ze als een vorm van **hoop**. Als een weigering om zich door de eindigheid van het leven te laten reduceren. Als een geloof dat er, ondanks alles, nog ruimte bestaat voor betekenis, voor schoonheid, voor liefde, voor taal.
 
 Vandaag blijken ze ook iets anders te bevatten: de moed om in de ogen van de eindigheid te kijken zonder ervoor weg te lopen.
 
-En misschien is dat wat mij zo raakt in het werk van Marsman. Niet dat ze antwoorden geeft op de grote vragen van het leven. Wel dat ze de vragen durft te laten bestaan. Dat ze taal vindt voor wat de meesten van ons liever ontwijken. Dat ze een venster opent op de laatste hoofdstukken van een mensenleven en daarbij niets verdoezelt: niet de angst, niet de woede, niet de twijfel, maar evenmin de verwondering, de zachtheid en de schoonheid die zich daar soms nog aandienen.
+DAT is wat mij zo raakt in het werk van Marsman. Niet dat ze antwoorden geeft op de grote vragen van het leven. Wel dat ze de vragen durft te laten bestaan. Dat ze taal vindt voor wat de meesten van ons liever ontwijken. Dat ze een venster opent op de laatste hoofdstukken van een mensenleven en daarbij niets verdoezelt: niet de angst, niet de woede, niet de twijfel, maar evenmin de verwondering, de zachtheid en de schoonheid die zich daar soms nog aandienen.
 
-De eerste, bijna puberale emotie die ik hierboven beschreef, maakte daarom snel plaats voor iets anders: dankbaarheid.
+De eerste, bijna puberale emotie die ik hierboven beschreef, maakte daarom snel plaats voor iets anders: **dankbaarheid**.
 
-Dankbaarheid voor de schoonheid die ze achterlaat, in haar boeken en in mijn hart. Dankbaarheid voor de manier waarop ze woorden gaf aan wat zo vaak woordeloos blijft. Dankbaarheid voor het geloof dat taal, zingeving en spiritualiteit geen luxeproducten zijn voor rustige tijden, maar hulpmiddelen om het leven te dragen wanneer het zwaar wordt.
+Dankbaarheid voor de **schoonheid** die ze achterlaat, in haar boeken en in mijn hart. Dankbaarheid voor de manier waarop ze woorden gaf aan wat zo vaak woordeloos blijft. Dankbaarheid voor het geloof dat **taal, zingeving en spiritualiteit** geen luxeproducten zijn voor rustige tijden, maar hulpmiddelen om het leven te dragen wanneer het zwaar wordt.
 
 Misschien was mijn eerste reactie daarom ook niet helemaal onzinnig. Misschien was ze alleen verkeerd gericht.
 
@@ -40,11 +46,11 @@ Het was niet zozeer jammer dat ik Lieke Marsman niet langer kan lezen terwijl ze
 
 De kritieken zullen – al is het maar voor even – verstommen. De mortuis nil nisi boni: over de doden niets dan goeds.
 
-En als ik dan toch nog één keer mag toegeven aan die eerste, irrationele emotie, dan doe ik het met woorden die ouder zijn dan wij allemaal. Woorden van Augustinus van Hippo, in de prachtige bewerking van Huub Oosterhuis:
+En als ik dan toch nog één keer mag toegeven aan die eerste, irrationele emotie, dan doe ik het met woorden die ouder zijn dan wij allemaal. Woorden van *Augustinus van Hippo*, in de prachtige bewerking van *Huub Oosterhuis*:
 
-Te laat heb ik je liefgekregen,
-schoonheid zo oud en zo nieuw,
-te laat heb ik je liefgekregen.
-Jij was bij mij, maar ik was niet bij jou.
+    Te laat heb ik je liefgekregen,
+    schoonheid zo oud en zo nieuw,
+    te laat heb ik je liefgekregen.
+    Jij was bij mij, maar ik was niet bij jou.
 
-Rust zacht, Lieke Marsman.
+**Rust zacht, Lieke Marsman.**
