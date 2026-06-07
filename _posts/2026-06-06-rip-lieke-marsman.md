@@ -22,9 +22,9 @@ In het geval van Lieke Marsman was ik vooral aangedaan door de schoonheid waarme
 
 Ze opent haar derde dichtbundel In mijn mand met deze woorden:
 
-     *Oneindigheid van tijd houdt me overeind nu.*
-     *Hoe lang de dag ook leek, het was een snipper.*
-     *Hoe kort de dag ook lijkt, er is nog tijd.*
+     Oneindigheid van tijd houdt me overeind nu.
+     Hoe lang de dag ook leek, het was een snipper.
+     Hoe kort de dag ook lijkt, er is nog tijd.
 
 Die woorden verwarmen mijn ziel, maar omklemmen tegelijk mijn hart.
 
@@ -54,3 +54,5 @@ En als ik dan toch nog één keer mag toegeven aan die eerste, irrationele emoti
     Jij was bij mij, maar ik was niet bij jou.
 
 **Rust zacht, Lieke Marsman.**
+
+![Lieke Marsman](/meditationes/images/marsman3.jpg)
