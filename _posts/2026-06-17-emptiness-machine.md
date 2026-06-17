@@ -1,3 +1,10 @@
+---
+layout: post
+title: "The Emptiness Machine"
+date: 2026-06-17
+author: Francis
+tags: bildung, groei, radicalisering, polarisatie, American History X, Linkin Park, Useless Box
+---
 The Emptiness Machine
 
 Het schooljaar loopt ten einde. Het was bij momenten alweer een pittig verhaal. Ik geef leerlingen de ruimte om te zijn wie ze zijn en – omdat ik sterk geloof in vrije meningsuiting – ook de ruimte om te zeggen waar ze voor staan.
