@@ -1,3 +1,11 @@
+---
+layout: post
+title: "De dankbaarheid van de ondankbaarheid"
+date: 2026-06-21
+author: Francis
+tags: bildung, groei, personal
+---
+
 De dankbaarheid van de ondankbaarheid
 
 Mijn vrouw wijst er mij geregeld op dat het glas bij mij zeer vaak halfleeg is. Dat ik te vaak doemdenk en het nodige wantrouwen heb in mensen. Ik zeg haar dat dat niet zo is maar – tussen ons gezegd en gezwegen – mijn vrouw kent mij als geen ander.
